@@ -1,2 +1,2 @@
 # Bixic-org.github.io
-Official Website of Brxōdwez, lanva?!.
+Official Website of Brxōdƣez, lanva?!.
